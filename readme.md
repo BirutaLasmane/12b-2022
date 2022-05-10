@@ -14,7 +14,6 @@
 
 Kristaps Cvilikovskis, datora numurs ir 15
 
-Katrīna Sleže
 
 
 
@@ -28,4 +27,4 @@ Katrīna Sleže
 
 
 
-Mana datora numurs ir 17.
+
