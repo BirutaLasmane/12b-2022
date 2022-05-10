@@ -12,7 +12,7 @@
 
 
 
-Kristaps Cvilikovskis
+Kristaps Cvilikovskis, datora numurs ir 15
 
 Katrīna Sleže
 
