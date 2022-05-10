@@ -14,7 +14,7 @@
 Dāvis Bogdanovs
 
 
-Katrīna Sleže
+
 
 
 
