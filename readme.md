@@ -11,7 +11,7 @@
 
 
 
-
+Dāvis Bogdanovs
 
 
 Katrīna Sleže
@@ -28,4 +28,4 @@ Katrīna Sleže
 
 
 
-Mana datora numurs ir 17.
+Mana datora numurs ir 14.
