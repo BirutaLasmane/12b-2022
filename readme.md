@@ -1,1 +1,31 @@
 
+Jēkabs Tišanovs
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Mana datora numurs ir 2
